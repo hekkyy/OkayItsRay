@@ -1,7 +1,5 @@
 haiii<33
-
-⋆ ˚｡⋆୨୧˚	⠀:¨ ·.· ¨:
-          `· . ୨୧ **hekky**⠀
+୨୧**hekky**୨୧
           
 **music enthusiast<3**
 
@@ -9,6 +7,4 @@ How to reach me:
 discord: hekkkyy
 instagram: suihenial
 
- ∧,,,∧
-(  ̳• · • ̳)
-/    づ♡  Have a wonderful day! 
+Have a wonderful day! ♡♡
